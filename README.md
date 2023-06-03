@@ -1,4 +1,3 @@
-[![MasterHead](https://media.giphy.com/media/f9XgHHnPnDjOF1hWpl/giphy.gif)]
 <h1 align="center">Hi 👋, I'm Navneet agarwal</h1>
 <h3 align="center">A passionate software developer from India</h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
