@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **navneet.agarwal.97521@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zZeAj0ORjhp2zYhYnq8oHpZkQU-gTbZa/view?usp=sharing](https://drive.google.com/file/d/1zZeAj0ORjhp2zYhYnq8oHpZkQU-gTbZa/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cIzxcdcdeAHY4IyPlzE4CkNkyaJLjtco/view](https://drive.google.com/file/d/1cIzxcdcdeAHY4IyPlzE4CkNkyaJLjtco/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
